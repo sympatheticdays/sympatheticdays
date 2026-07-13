@@ -10,3 +10,6 @@
  <p align = "center">
   <img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=cc1c6dfa ">
 </p>
+<p align = "center">
+  Other links: https://en.pronouns.page/@mechanicaljam
+</p>
