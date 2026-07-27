@@ -1,15 +1,7 @@
+&nbsp;<div align="center">
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Caveat&size=30&pause=1000&color=88273B&center=true&vCenter=true&width=435&lines=The+Sympath+of+the+Union;Sympathetic_Day+enthusiast+%3C3" alt="Typing SVG" />
+---
 <p align = "center">
-  Please read my <ins>Rentry</ins> if you want to int with me!!
-</p>
+<img src = https://64.media.tumblr.com/24656878b8a144836dcefe9a6fd6d61f/874107b955c72c26-ea/s100x200/06e15b43f27ccd05fe423c3e78ce1d9884bb3613.pnj><img src = https://64.media.tumblr.com/0897128534ac3797bc913df69de31142/874107b955c72c26-da/s100x200/5a53b9fb4f2e5b3d3a8c8c2e38974dd9e49ee699.pnj><img src = https://64.media.tumblr.com/35f5c5267031e4c6cf2e5f984a69baae/874107b955c72c26-4b/s100x200/1841818f6b27e9fc3d6d7df7e8ff58d0f9e2ea69.pnj>
 <p align = "center">
-  C+H always, especially if same interests/fandom!! I'm extremely shy so I may not talk a lot
-</p>
-  <p align = "center">
-  FORMERLY: mechanicaljam
- </p>
- <p align = "center">
-  <img src="https://biscuit.crd.co/assets/images/gallery85/bc77fed5.gif?v=cc1c6dfa ">
-</p>
-<p align = "center">
-  Other links: https://en.pronouns.page/@mechanicaljam
-</p>
+$\color{#802f4b}{\textsf{     ㆍ〝 sympathetic . formerly﹕mechanicaljam  〞}}\qquad$
