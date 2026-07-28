@@ -21,3 +21,9 @@ $\color{#802f4b}{\textsf{ㅤㅤㅤ〝 sympathetic . formerly﹕mechanicaljam  �
 
 <p align = "center">
   ${\text{\color{#803b52} iwc　\color{#75344a} frskn　\color{#703046} fandom　\color{#692a3f} and \color{#5e2437} -13　\color{#541d2f} ✦　\color{#541d2f} c+h　\color{#57172d} w2i　\color{#4a1225} offtab}}$ <br>
+---
+<p align = "center">
+ <img src = https://64.media.tumblr.com/e28cb78cf8edafd99720ed36e9af33e9/05fb48601ee574c0-97/s400x600/78541009603442cc688b9e46926437eed9b23c7b.pnj width=423>
+</p>
+<p align = "center">  
+  $\color{#802f4b}{\textsf{ㅤㅤㅤ❤︎}}\qquad$
