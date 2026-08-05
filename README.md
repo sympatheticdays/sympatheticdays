@@ -3,7 +3,10 @@
 
 all elements here are forked from different githubs,
 ive unfortunately forgotten which came from whose github
-but hopefully you dont mind ^^
+
+please let me know if you'd like to be mentioned/credited
+if you've been forked by me!
+
 thank you!
 
 
@@ -33,3 +36,16 @@ $\color{#802f4b}{\textsf{ㅤㅤㅤ〝 sympathetic . formerly﹕mechanicaljam  �
 </p>
 <p align = "center">  
   $\color{#802f4b}{\textsf{ㅤㅤㅤ❤︎}}\qquad$
+
+---
+<div align="center">
+
+[![Discord Presence](https://lanyard.cnrad.dev/api/799231018963435520?theme=dark&bg=965d06)](https://discord.com/users/799231018963435520)
+
+</div>
+  </td>
+</table>
+</div>
+
+
+ </br>
