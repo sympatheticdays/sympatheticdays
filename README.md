@@ -37,3 +37,7 @@ $\color{#802f4b}{\textsf{ㅤㅤㅤ〝 sympathetic . formerly﹕mechanicaljam  �
 
 
  </br>
+
+---
+
+hi everynyan ive been busy for a few days with school (missed some important events and exams) and lots of earthquakes these past few days so thats not fun :[[
