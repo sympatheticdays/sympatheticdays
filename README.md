@@ -41,5 +41,6 @@ $\color{#802f4b}{\textsf{ㅤㅤㅤ〝 sympathetic . formerly﹕mechanicaljam  �
  </br>
 
 ---
-
-hi everynyan ive been busy for a few days with school (missed some important events and exams) and lots of earthquakes these past few days so thats not fun :[[
+&nbsp;<div align="center">
+<details><summary>$${\color{#8a3d63}current \space state}$$</summary><p>
+$${\color{#8a3d63}have \space been \space experiencing \space some \space backpain \space unfortunately \space and \space exhaustion \space after \space school \space so \space iwcare \space would \space be \space appreciated! \space <3}$$
