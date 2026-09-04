@@ -43,4 +43,4 @@ $\color{#802f4b}{\textsf{ㅤㅤㅤ〝 sympathetic . formerly﹕mechanicaljam  �
 ---
 &nbsp;<div align="center">
 <details><summary>$${\color{#8a3d63}current \space state}$$</summary><p>
-$${\color{#8a3d63}have \space been \space experiencing \space some \space backpain \space unfortunately \space and \space exhaustion \space after \space school \space so \space iwcare \space would \space be \space appreciated! \space <3}$$
+$${\color{#8a3d63}very \space tired \space nowadays \space because \space of \space school \space D:}$$
