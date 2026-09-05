@@ -49,4 +49,4 @@ $\color{#802f4b}{\textsf{ㅤㅤㅤ〝 sympathetic . formerly﹕mechanicaljam  �
 ---
 &nbsp;<div align="center">
 <details><summary>$${\color{#8a3d63}current \space state}$$</summary><p>
-$${\color{#8a3d63}very \space tired \space nowadays \space because \space of \space school \space D:}$$
+$${\color{#8a3d63}tired \space and \space uneasy \space nowadays... \space iwvecare}$$
